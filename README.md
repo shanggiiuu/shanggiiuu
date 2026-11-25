@@ -1,4 +1,4 @@
-# HEYOOOO, I'm shanggiiuu! <img src="[https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif](https://tenor.com/search/cat-waving-gifs)" width="25">
+# HEYOOOO, I'm shanggiiuu! <img src="https://tenor.com/search/cat-waving-gifs" width="35">
 
 > *somewhere between writing code, breaking things (accidentally), and having 27 tabs open.*
 
